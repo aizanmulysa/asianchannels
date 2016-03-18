@@ -1,2 +1,0 @@
-# asianchannels
-Asian local channels
